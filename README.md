@@ -1,0 +1,1 @@
+# satlantas_polres_minahasa
